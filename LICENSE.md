@@ -1,4 +1,4 @@
-# 
+# Último YNAB plugins para Mac OS | Mejor YNAB plugins para PC Windows. Con escaneo de recibos y conciliación bancaria — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
